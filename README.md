@@ -1,3 +1,5 @@
+<img width="730" height="529" alt="1000034717" src="https://github.com/user-attachments/assets/a91e3db5-93d2-4e84-a4ec-bc02db827876" />
+
 call me knight
 
 im a guy and a minor , eng/pl
